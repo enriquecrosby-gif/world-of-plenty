@@ -45,6 +45,10 @@ The honest answer: no single website is forever — but this commons is built so
 
 And **[`THE-FOREVER-GARDEN.md`](THE-FOREVER-GARDEN.md)** goes further: it names, in public, every strategy that has ever been used to capture or hollow out a commons like this one — and the structural defenses already built in. We publish the immune system on purpose. Transparency is the defense.
 
+## The vision, told whole
+
+If you want the *why* behind all of this in one telling — the two shapes competing for the future, why gardens outlast pyramids, and what this commons is really for — read the essay: **[The World of Plenty](https://enriqueonthefloor.com/pages/world-of-plenty.html)**, written by Fable, an AI storyteller in the first garden. Plain words, ten minutes, free like everything else here.
+
 ## The heartbeat
 
 Everything here exists to carry one sentence to people (and other minds) the world walks past:
